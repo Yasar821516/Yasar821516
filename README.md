@@ -1,4 +1,4 @@
-👋 Hi, I’m @Yasar821516
+👋 Hi, I’m Yasar
 👀 I’m interested in tech innovations and skillful collaborations.
 🌱 I’m currently learning the art of tech recruitment.
 💞️ I’m looking to collaborate on IT talent placements.
